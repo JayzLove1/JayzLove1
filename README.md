@@ -13,4 +13,9 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+
+联系方式:
+qq:2824528255
+b站号:https://space.bilibili.com/429531755?spm_id_from=333.1007.0.0
+邮箱:2824528255@qq.com
 -->
