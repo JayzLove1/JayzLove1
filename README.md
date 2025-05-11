@@ -18,6 +18,7 @@ Here are some ideas to get you started:
 -->
 联系方式:
 qq:2824528255
-b站号:https://space.bilibili.com/429531755?spm_id_from=333.1007.0.0
+b站号:<a href="https://space.bilibili.com/429531755?spm_id_from=333.1007.0.0" rel="nofollow">君哲丶</a>
 邮箱:2824528255@qq.com
-![preview](https://github.com/user-attachments/assets/1c1dd084-dad1-40ad-8b07-5814259b9bc7)
+![preview](https://github.com/user-attachments/assets/810c0694-a122-4288-bd97-bdbca89ea3b5)
+
